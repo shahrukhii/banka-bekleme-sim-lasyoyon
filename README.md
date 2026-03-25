@@ -1,0 +1,1 @@
+# banka-bekleme-sim-lasyoyon
